@@ -10,4 +10,4 @@ Meu nome é Anthony
 
 ![](https://media1.tenor.com/m/FuBVyACtPFcAAAAC/game-gaming.gif)
 
-![](https://i.gifer.com/6KpV.gif)
+![](https://tenor.com/pt-BR/view/arzee-acidente-anão-meme-pokemon-gif-22173515)
