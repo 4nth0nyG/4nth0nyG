@@ -8,6 +8,5 @@ Meu nome é Anthony
 
 @tonyg0_0
 
-![](https://media1.tenor.com/m/FuBVyACtPFcAAAAC/game-gaming.gif)
-
-![](https://tenor.com/pt-BR/view/arzee-acidente-anão-meme-pokemon-gif-22173515)
+![](https://media1.tenor.com/m/NaWd17utgqQAAAAC/15.gif)
+![](https://media1.tenor.com/m/EPFtffxxURYAAAAC/dinofauro-dinofauro-fanho.gif)
